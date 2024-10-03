@@ -4,7 +4,7 @@
 
 ## Watch Demo
 
-[Check out the website](https://youtube.com/shorts/W4UWAy6gIyM?si=I4aj-HCWp1ee0x1i)
+[Check out the video](https://youtube.com/shorts/W4UWAy6gIyM?si=I4aj-HCWp1ee0x1i)
 
 ## About
 
